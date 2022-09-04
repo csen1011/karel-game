@@ -1,1 +1,1 @@
-Play with code, Keral game
+Play with code, Keral game.
